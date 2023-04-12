@@ -1,0 +1,1 @@
+# Global-Index-Of-Economic-Freedom-Analysis-2022
